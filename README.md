@@ -1,5 +1,5 @@
 See:
-https://gogaku-zy75.hatenadiary.com/entry/2024/07/05/063103
+https://research-zy75.hatenadiary.com/entry/2024/08/24/060845
 
 # Files
 
